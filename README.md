@@ -1,0 +1,4 @@
+AR-Coating-Photovoltaic-Glass
+=============================
+
+Key Feature: Super white, flat rectangular, tempered(toughened), smooth on surface and embossing on reverse photovoltaic glass. Width 1075mm, a length of 1995mm, thickness 3.2mm.We can according to the request of the guests to the production of any specifications of the photovoltaic glass. You can contact us at any time. The AR coating Photovoltaic glass is professional used for encapsulation of the mono(poly)crystallinesilicon photovoltaic modules(cells, panels) and so on. It can be still used for collector and flat water heater etc.Certificate: Packing Details:PRODUCT CODPRODUCT NAMEHS CODECTN QTY(PCS)CNT WGT (kg)DIMENSIONS (MM)CNT CUBE MetricQ'ty 20' FCL(SQM)Q'ty 40' FCL(SQM)Q'ty 40'hq FCL(SQM)WDHPY-A10001Solar Glass70071900011001715.711752095551.35394289.25(20CTN/PALLET)8578.5(40CTN/PALLET)10723.125(50CTN/PALLET)http://www.china-solarglass.com/pid11488957/AR+Coating+Photovoltaic+Glass.htm
